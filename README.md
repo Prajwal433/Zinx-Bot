@@ -5,6 +5,8 @@ And It Was Closed Src
 
 But Now I Though Of Making It Open Src!!! 
 And I Have Thought Of Adding No Copy Right For This Bot Code!! 
+<br>
+<br>
 (As ik all users will remove the copy right in eitherway so i removed it!!)
 **Enjoy**
 
